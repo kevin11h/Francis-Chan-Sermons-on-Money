@@ -34,4 +34,4 @@
 
 17. Living Humbly https://www.youtube.com/watch?v=hfdAO0AWVkA
 
-18. 
+18. Stop Working.  Start Receiving https://www.youtube.com/watch?v=TOb4pwACcBQ
