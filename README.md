@@ -35,3 +35,9 @@
 17. Living Humbly https://www.youtube.com/watch?v=hfdAO0AWVkA
 
 18. Stop Working.  Start Receiving https://www.youtube.com/watch?v=TOb4pwACcBQ
+
+19. Stop Stressing about Money Part 2 https://www.youtube.com/watch?v=k7MbTuoJQv8
+
+20. Financial Decisions Decade Day with Eternal Consequences https://www.youtube.com/watch?v=GEZvbGfYjyY
+
+21. 
