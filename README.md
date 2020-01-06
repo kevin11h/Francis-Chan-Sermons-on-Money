@@ -40,4 +40,4 @@
 
 20. Financial Decisions Decade Day with Eternal Consequences https://www.youtube.com/watch?v=GEZvbGfYjyY
 
-21. 
+21. You Have All You Need https://www.youtube.com/watch?v=wQpVVfktiAw 
