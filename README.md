@@ -41,3 +41,7 @@
 20. Financial Decisions Decade Day with Eternal Consequences https://www.youtube.com/watch?v=GEZvbGfYjyY
 
 21. You Have All You Need https://www.youtube.com/watch?v=wQpVVfktiAw 
+
+22. Peace is not about Circumstances. It's about Faith
+
+How to defeat anxiety https://www.youtube.com/watch?v=Q4YMLVn85y0
