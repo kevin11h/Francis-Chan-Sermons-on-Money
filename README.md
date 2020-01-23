@@ -45,3 +45,18 @@
 22. Peace is not about Circumstances. It's about Faith
 
 How to defeat anxiety https://www.youtube.com/watch?v=Q4YMLVn85y0
+
+Francis-Chan-Luke-12-22-34-Stop-money-anxiety
+https://github.com/kevin11h/Francis-Chan-Luke-12-22-34-Stop-money-anxiety
+
+# Isaiah-55-1-2-No-Money-Free-Honey-
+Isaiah 55:1-2 Invitation to the Needy 1“Come, all you who are thirsty, come to the waters; and you without money, come, buy, and eat! Come, buy wine and milk, without money and without cost! 2Why s…
+
+https://github.com/kevin11h/Isaiah-55-1-2-No-Money-Free-Honey-
+
+# 300 Men Gideon
+300.co-300-hourly-dollars-per-day
+300.co John 12:4-7 Mary Anoints Jesus …4But one of His disciples, Judas Iscariot, who was going to betray Him, asked, 5“Why wasn’t this perfume sold for three hundred denarii and the money given to
+
+# Proverbs-22-16
+STOP giving YOUR money to the rich!!! Inbox x Robert Kiyosaki customerservice@richdad.com via creatensend.com 12:14 PM (2 hours ago) to me Why are you giving all your money to the rich?!? I feel li
