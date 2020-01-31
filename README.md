@@ -1,5 +1,5 @@
 # Francis-Chan-Sermons-on-Money
-1. https://www.youtube.com/watch?v=GEZvbGfYjyY 
+## 1. Financial Decisions with Eternal Consequences https://www.youtube.com/watch?v=GEZvbGfYjyY 
 
 2. https://www.youtube.com/watch?v=cVdsGCL964w 
 
