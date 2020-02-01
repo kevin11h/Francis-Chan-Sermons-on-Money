@@ -1,7 +1,7 @@
 # Francis-Chan-Sermons-on-Money
 ## 1. Financial Decisions with Eternal Consequences https://www.youtube.com/watch?v=GEZvbGfYjyY 
 
-2.  Francis Chan: Stop Stressing About Money (Part 1)
+# 2.  Francis Chan: Stop Stressing About Money (Part 1)
  https://www.youtube.com/watch?v=cVdsGCL964w 
 
 3. https://www.youtube.com/watch?v=k7MbTuoJQv8
