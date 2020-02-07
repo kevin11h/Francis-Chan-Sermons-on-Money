@@ -7,8 +7,7 @@
 
 # 4. # Sufficiency in Christ https://www.youtube.com/watch?v=wQpVVfktiAw  
 
-
-5. Francis CHan Millionaire Philanthropist https://www.youtube.com/watch?v=GSouyth3PbI
+# 5. Francis CHan Millionaire Philanthropist https://www.youtube.com/watch?v=GSouyth3PbI
 
 6. Give vs. Take https://www.youtube.com/watch?v=NoN1061Yb5Q 
 
