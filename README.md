@@ -5,7 +5,7 @@
 
 # 3. https://www.youtube.com/watch?v=k7MbTuoJQv8
 
-4. Sufficiency in Christ https://www.youtube.com/watch?v=wQpVVfktiAw  
+# 4. # Sufficiency in Christ https://www.youtube.com/watch?v=wQpVVfktiAw  
 
 
 5. Francis CHan Millionaire Philanthropist https://www.youtube.com/watch?v=GSouyth3PbI
