@@ -11,7 +11,7 @@
 
 # 6. Give vs. Take https://www.youtube.com/watch?v=NoN1061Yb5Q 
 
-7.  Give vs. Take Part 2 https://www.youtube.com/watch?v=S68pULZIPII
+# 7.  Give vs. Take Part 2 https://www.youtube.com/watch?v=S68pULZIPII
 
 8. Stop Working, Start Receiving- Grace by Francis Chan
  https://youtube.com/watch?v=TOb4pwACcBQ
