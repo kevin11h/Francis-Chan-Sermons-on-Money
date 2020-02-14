@@ -15,7 +15,7 @@
 
 # 8. Stop Working, Start Receiving- Grace by Francis Chan https://youtube.com/watch?v=TOb4pwACcBQ
 
-9.  Love things less https://www.youtube.com/watch?v=jNO17DdIeGY
+# 9.  Love things less https://www.youtube.com/watch?v=jNO17DdIeGY
 
 10.  Solving anxiety worries problems https://www.youtube.com/watch?v=0UOvw3FydFU
 
