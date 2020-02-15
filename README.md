@@ -17,7 +17,7 @@
 
 # 9.  Love things less https://www.youtube.com/watch?v=jNO17DdIeGY
 
-10.  Solving anxiety worries problems https://www.youtube.com/watch?v=0UOvw3FydFU
+# 10.  Solving anxiety worries problems https://www.youtube.com/watch?v=0UOvw3FydFU
 
 11. Don't love money over people https://www.youtube.com/watch?v=KZkmmsR9fpw&t=477s
 
