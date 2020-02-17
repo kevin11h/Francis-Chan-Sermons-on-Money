@@ -45,6 +45,11 @@
 
 How to defeat anxiety https://www.youtube.com/watch?v=Q4YMLVn85y0
 
+23. Destroying Consumer Christianity - Simon and the Sinful Woman. Anointing of Jesus. Parable of the Debtors https://www.youtube.com/watch?v=YseiDKLI6-I
+Destroy Consumerism
+Debt Forgiveness - Sins & Guilt Forgiven
+
+
 Francis-Chan-Luke-12-22-34-Stop-money-anxiety
 https://github.com/kevin11h/Francis-Chan-Luke-12-22-34-Stop-money-anxiety
 
@@ -59,3 +64,4 @@ https://github.com/kevin11h/Isaiah-55-1-2-No-Money-Free-Honey-
 
 # Proverbs-22-16
 STOP giving YOUR money to the rich!!! Inbox x Robert Kiyosaki customerservice@richdad.com via creatensend.com 12:14 PM (2 hours ago) to me Why are you giving all your money to the rich?!? I feel li
+
