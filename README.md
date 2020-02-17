@@ -19,7 +19,7 @@
 
 # 10.  Solving anxiety worries problems https://www.youtube.com/watch?v=0UOvw3FydFU
 
-11. Don't love money over people https://www.youtube.com/watch?v=KZkmmsR9fpw&t=477s
+# 11. Don't love money over people https://www.youtube.com/watch?v=KZkmmsR9fpw&t=477s
 
 12. Truth about Tithing youtube.com/watch?v=4cs0gRxzKpY&
 
