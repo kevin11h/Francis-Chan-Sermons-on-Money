@@ -21,7 +21,7 @@
 
 # 11. Don't love money over people https://www.youtube.com/watch?v=KZkmmsR9fpw&t=477s
 
-12. Truth about Tithing youtube.com/watch?v=4cs0gRxzKpY&
+# 12. Truth about Tithing youtube.com/watch?v=4cs0gRxzKpY&
 
 13. What happens if you make a lot of money https://www.youtube.com/watch?v=163C7zWZDAA
 
