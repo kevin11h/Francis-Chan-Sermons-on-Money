@@ -49,7 +49,11 @@ How to defeat anxiety https://www.youtube.com/watch?v=Q4YMLVn85y0
 Destroy Consumerism
 Debt Forgiveness - Sins & Guilt Forgiven
 
-24. Spirit Empowered Generosity https://www.youtube.com/watch?v=IQY6qGFjM8k
+24. Holy Spirit Empowered Generosity https://www.youtube.com/watch?v=IQY6qGFjM8k
+
+25. Be a Giver in a World of Takers https://www.youtube.com/watch?v=fhdRaPGjtGw&t=622s
+
+26. Shall Not Want ~ Lacking Nothing ~ https://www.youtube.com/watch?v=3NcN3ZcUp7o
 
 Francis-Chan-Luke-12-22-34-Stop-money-anxiety
 https://github.com/kevin11h/Francis-Chan-Luke-12-22-34-Stop-money-anxiety
