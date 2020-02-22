@@ -23,9 +23,9 @@
 
 # 12. Truth about Tithing youtube.com/watch?v=4cs0gRxzKpY&
 
-13. What happens if you make a lot of money https://www.youtube.com/watch?v=163C7zWZDAA
+# 13. What happens if you make a lot of money https://www.youtube.com/watch?v=163C7zWZDAA
 
-14. Prayer vs. Money  https://www.youtube.com/watch?v=ygnYAr5li-Q
+# 14. Prayer vs. Money  https://www.youtube.com/watch?v=ygnYAr5li-Q
 
 15. Destroy Consumer Christianity https://www.youtube.com/watch?v=YseiDKLI6-I
 
@@ -45,7 +45,7 @@
 
 How to defeat anxiety https://www.youtube.com/watch?v=Q4YMLVn85y0
 
-23. Destroying Consumer Christianity - Simon and the Sinful Woman. Anointing of Jesus. Parable of the Debtors https://www.youtube.com/watch?v=YseiDKLI6-I
+23. Destroying Consumerism Christianity - Simon and the Sinful Woman. Anointing of Jesus. Parable of the Debtors https://www.youtube.com/watch?v=YseiDKLI6-I
 Destroy Consumerism
 Debt Forgiveness - Sins & Guilt Forgiven
 
