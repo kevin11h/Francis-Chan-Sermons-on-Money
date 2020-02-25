@@ -27,9 +27,9 @@
 
 # 14. Prayer vs. Money  https://www.youtube.com/watch?v=ygnYAr5li-Q
 
-15. Destroy Consumer Christianity https://www.youtube.com/watch?v=YseiDKLI6-I
+# 15. Destroy Consumer Christianity https://www.youtube.com/watch?v=YseiDKLI6-I
 
-16. Don't obsess over money https://www.youtube.com/watch?v=4YSfkaEAKgs
+# 16. Don't obsess over money https://www.youtube.com/watch?v=4YSfkaEAKgs
 
 17. Living Humbly https://www.youtube.com/watch?v=hfdAO0AWVkA
 
