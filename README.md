@@ -31,7 +31,7 @@
 
 # 16. Don't obsess over money https://www.youtube.com/watch?v=4YSfkaEAKgs
 
-17. Living Humbly https://www.youtube.com/watch?v=hfdAO0AWVkA
+# 17. Living Humbly https://www.youtube.com/watch?v=hfdAO0AWVkA
 
 18. Stop Working.  Start Receiving https://www.youtube.com/watch?v=TOb4pwACcBQ
 
