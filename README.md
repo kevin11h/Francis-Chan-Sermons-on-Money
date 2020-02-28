@@ -33,7 +33,7 @@
 
 # 17. Living Humbly https://www.youtube.com/watch?v=hfdAO0AWVkA
 
-18. Stop Working.  Start Receiving https://www.youtube.com/watch?v=TOb4pwACcBQ
+# 18. Stop Working.  Start Receiving https://www.youtube.com/watch?v=TOb4pwACcBQ
 
 19. Stop Stressing about Money Part 2 https://www.youtube.com/watch?v=k7MbTuoJQv8
 
