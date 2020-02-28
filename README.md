@@ -55,6 +55,45 @@ Debt Forgiveness - Sins & Guilt Forgiven
 
 26. Shall Not Want ~ Lacking Nothing ~ https://www.youtube.com/watch?v=3NcN3ZcUp7o
 
+27. Giving it All Away https://www.youtube.com/watch?v=xGmFQ9icPzA
+
+28. Francis Chan Sermons - Don't Let Money Obsess You (P2) https://www.youtube.com/watch?v=Mz3B_vJvcqg
+
+29. Silicon Valley is Evil: Money & Technology Idoloatry https://www.youtube.com/watch?v=Tg6Bm9WUvYM
+
+30. Francis Chan: "How to Get to Heaven from Silicon Valley" | Talks at Google https://www.youtube.com/watch?v=Tg6Bm9WUvYM
+
+31. God will provide for us https://www.youtube.com/watch?v=18_cSoDgnwM
+
+32. Francis Chan: Being A Giver In A World Of Takers (Part 4)
+ https://www.youtube.com/watch?v=fhdRaPGjtGw
+
+33.Downsize Your Life Francis Chan https://www.youtube.com/watch?v=vX1eIH0Hghk
+
+34. Francis Chan on What's Wrong with the Prosperity Gospel https://www.youtube.com/watch?v=_sLFgC4cRuI
+
+35.Sermon: Money and the Kingdom of God
+ https://www.youtube.com/watch?v=e-VpRGQ2BVw
+ 
+ 36. Treasure vs. Money – Timothy Keller [Sermon]
+ https://www.youtube.com/watch?v=YEvuXAucbd8
+ 
+ 37. Ecclesiastes 5:8-20 The Love Of Money
+ https://www.youtube.com/watch?v=U1dMRHWce0Y
+ 
+ 38. How to be rich https://www.youtube.com/watch?v=bVXLoTkgReE
+ 
+ 39. Francis Chan - Come To Him Not Only Expecting To Receive, But To Give
+https://www.youtube.com/watch?v=9jH65OCIwQU
+
+40. How does God feels about the poor (amazing poverty Bible verses) - Francis Chan
+ https://www.youtube.com/watch?v=sT3ncgi0dJE
+ 
+ 41. https://www.youtube.com/watch?v=RI4zpsSRnkY Hardest Subject to Talk About In Church Today - Francis Chan
+
+
+
+
 Francis-Chan-Luke-12-22-34-Stop-money-anxiety
 https://github.com/kevin11h/Francis-Chan-Luke-12-22-34-Stop-money-anxiety
 
