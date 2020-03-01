@@ -92,6 +92,17 @@ https://www.youtube.com/watch?v=9jH65OCIwQU
  41. https://www.youtube.com/watch?v=RI4zpsSRnkY Hardest Subject to Talk About In Church Today - Francis Chan
 
 
+42. https://www.youtube.com/watch?v=gWmF80OeJ-8
+
+
+OnnuriEM
+2.64K subscribers
+Message by Pastor Stephen Cha
+
+"Shrewd Work"
+
+Nehemiah 2:1-10
+
 
 
 Francis-Chan-Luke-12-22-34-Stop-money-anxiety
