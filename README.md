@@ -1,3 +1,7 @@
+# Questions on money in the Bible
+https://github.com/kevin11h/Questions-on-Money-from-the-Holy-Bible
+https://www.gotquestions.org/search.php?zoom_sort=0&amp;zoom_query=money
+
 # Francis-Chan-Sermons-on-Money
 ## 1. Financial Decisions with Eternal Consequences https://www.youtube.com/watch?v=GEZvbGfYjyY 
 
