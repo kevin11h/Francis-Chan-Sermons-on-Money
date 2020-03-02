@@ -94,6 +94,12 @@ https://www.youtube.com/watch?v=9jH65OCIwQU
 
 42. https://www.youtube.com/watch?v=gWmF80OeJ-8
 
+43. Francis Chan: How To Keep From Procrastinating
+ https://www.youtube.com/watch?v=UzHQlL-hyuQ&t=492s
+ 
+44. Francis Chan: Motivation To Stay On The Right Path
+ https://www.youtube.com/watch?v=UzHQlL-hyuQ
+
 
 OnnuriEM
 2.64K subscribers
