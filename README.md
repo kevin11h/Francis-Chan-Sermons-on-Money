@@ -40,7 +40,7 @@ https://www.gotquestions.org/search.php?zoom_sort=0&amp;zoom_query=money
 
 # 18. Stop Working.  Start Receiving https://www.youtube.com/watch?v=TOb4pwACcBQ
 
-19. Stop Stressing about Money Part 2 https://www.youtube.com/watch?v=k7MbTuoJQv8
+# 19. Stop Stressing about Money Part 2 https://www.youtube.com/watch?v=k7MbTuoJQv8
 
 20. Financial Decisions Decade Day with Eternal Consequences https://www.youtube.com/watch?v=GEZvbGfYjyY
 
