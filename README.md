@@ -1,6 +1,7 @@
 # Questions on money in the Bible
-https://github.com/kevin11h/Questions-on-Money-from-the-Holy-Bible
 https://www.gotquestions.org/search.php?zoom_sort=0&amp;zoom_query=money
+1. Why is the love of money the root of all kinds of evil?
+
 
 # Francis-Chan-Sermons-on-Money
 ## 1. Financial Decisions with Eternal Consequences https://www.youtube.com/watch?v=GEZvbGfYjyY 
