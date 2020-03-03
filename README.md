@@ -42,9 +42,9 @@ https://www.gotquestions.org/search.php?zoom_sort=0&amp;zoom_query=money
 
 # 19. Stop Stressing about Money Part 2 https://www.youtube.com/watch?v=k7MbTuoJQv8
 
-20. Financial Decisions Decade Day with Eternal Consequences https://www.youtube.com/watch?v=GEZvbGfYjyY
+# 20. Financial Decisions Decade Day with Eternal Consequences https://www.youtube.com/watch?v=GEZvbGfYjyY
 
-21. You Have All You Need https://www.youtube.com/watch?v=wQpVVfktiAw 
+# 21. You Have All You Need https://www.youtube.com/watch?v=wQpVVfktiAw 
 
 22. Peace is not about Circumstances. It's about Faith
 
