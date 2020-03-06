@@ -47,9 +47,7 @@ https://www.gotquestions.org/miracle-money.html
 
 # 21. You Have All You Need https://www.youtube.com/watch?v=wQpVVfktiAw 
 
-22. Peace is not about Circumstances. It's about Faith
-
-How to defeat anxiety https://www.youtube.com/watch?v=Q4YMLVn85y0
+# 22. Peace is not about Circumstances. It's about Faith How to defeat anxiety https://www.youtube.com/watch?v=Q4YMLVn85y0
 
 23. Destroying Consumerism Christianity - Simon and the Sinful Woman. Anointing of Jesus. Parable of the Debtors https://www.youtube.com/watch?v=YseiDKLI6-I
 Destroy Consumerism
