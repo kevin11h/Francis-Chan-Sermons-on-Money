@@ -49,6 +49,8 @@ https://www.gotquestions.org/miracle-money.html
 
 # 22. Peace is not about Circumstances. It's about Faith How to defeat anxiety https://www.youtube.com/watch?v=Q4YMLVn85y0
 
+Francis Chan Filet of Fish Sermon https://www.youtube.com/watch?v=Q4YMLVn85y0&t=17m42s
+
 23. Destroying Consumerism Christianity - Simon and the Sinful Woman. Anointing of Jesus. Parable of the Debtors https://www.youtube.com/watch?v=YseiDKLI6-I
 Destroy Consumerism
 Debt Forgiveness - Sins & Guilt Forgiven
