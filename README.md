@@ -1,3 +1,6 @@
+# Francis Chan Filet of Fish Sermon https://www.youtube.com/watch?v=Q4YMLVn85y0&t=17m42s
+
+
 # Questions on money in the Bible
 https://www.gotquestions.org/search.php?zoom_sort=0&amp;zoom_query=money
 1. Why is the love of money the root of all kinds of evil?
@@ -50,9 +53,8 @@ https://www.gotquestions.org/miracle-money.html
 
 # 22. Peace is not about Circumstances. It's about Faith How to defeat anxiety https://www.youtube.com/watch?v=Q4YMLVn85y0
 
-Francis Chan Filet of Fish Sermon https://www.youtube.com/watch?v=Q4YMLVn85y0&t=17m42s
 
-23. Destroying Consumerism Christianity - Simon and the Sinful Woman. Anointing of Jesus. Parable of the Debtors https://www.youtube.com/watch?v=YseiDKLI6-I
+# 23. Destroying Consumerism Christianity - Simon and the Sinful Woman. Anointing of Jesus. Parable of the Debtors https://www.youtube.com/watch?v=YseiDKLI6-I
 Destroy Consumerism
 Debt Forgiveness - Sins & Guilt Forgiven
 
