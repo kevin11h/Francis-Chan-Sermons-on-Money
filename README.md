@@ -3,6 +3,7 @@ https://www.gotquestions.org/search.php?zoom_sort=0&amp;zoom_query=money
 1. Why is the love of money the root of all kinds of evil?
 https://www.gotquestions.org/miracle-money.html
 3. What does the Bible say about saving money? | GotQuestions.org
+4. Usury: https://www.gotquestions.org/Bible-lending-money.html
 
 # Francis-Chan-Sermons-on-Money
 ## 1. Financial Decisions with Eternal Consequences https://www.youtube.com/watch?v=GEZvbGfYjyY 
