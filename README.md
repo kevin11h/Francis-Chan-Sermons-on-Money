@@ -56,10 +56,10 @@ https://www.gotquestions.org/miracle-money.html
 
 
 # 23. Destroying Consumerism Christianity - Simon and the Sinful Woman. Anointing of Jesus. Parable of the Debtors https://www.youtube.com/watch?v=YseiDKLI6-I
-Destroy Consumerism
-Debt Forgiveness - Sins & Guilt Forgiven
+# Destroy Consumerism
+# Debt Forgiveness - Sins & Guilt Forgiven
 
-24. Holy Spirit Empowered Generosity https://www.youtube.com/watch?v=IQY6qGFjM8k
+# 24. Holy Spirit Empowered Generosity https://www.youtube.com/watch?v=IQY6qGFjM8k
 
 25. Be a Giver in a World of Takers https://www.youtube.com/watch?v=fhdRaPGjtGw&t=622s
 
