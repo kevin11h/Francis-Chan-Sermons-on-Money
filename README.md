@@ -62,7 +62,7 @@ https://www.gotquestions.org/miracle-money.html
 
 # 24. Holy Spirit Empowered Generosity https://www.youtube.com/watch?v=IQY6qGFjM8k
 
-25. Be a Giver in a World of Takers https://www.youtube.com/watch?v=fhdRaPGjtGw&t=622s
+# 25. Be a Giver in a World of Takers https://www.youtube.com/watch?v=fhdRaPGjtGw&t=622s
 
 26. Shall Not Want ~ Lacking Nothing ~ https://www.youtube.com/watch?v=3NcN3ZcUp7o
 
