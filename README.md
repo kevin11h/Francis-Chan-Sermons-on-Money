@@ -9,6 +9,7 @@ https://www.gotquestions.org/miracle-money.html
 3. Money Changers
 4. Usury: https://www.gotquestions.org/Bible-lending-money.html
 5. https://www.gotquestions.org/ungodly-money.html
+6. https://www.gotquestions.org/money-marriage.html
 
 # Francis-Chan-Sermons-on-Money
 ## 1. Financial Decisions with Eternal Consequences https://www.youtube.com/watch?v=GEZvbGfYjyY 
