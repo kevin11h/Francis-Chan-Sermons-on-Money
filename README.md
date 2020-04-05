@@ -64,7 +64,7 @@ https://www.gotquestions.org/miracle-money.html
 
 # 25. Be a Giver in a World of Takers https://www.youtube.com/watch?v=fhdRaPGjtGw&t=622s
 
-26. Shall Not Want ~ Lacking Nothing ~ https://www.youtube.com/watch?v=3NcN3ZcUp7o
+# 26. Shall Not Want ~ Lacking Nothing ~ https://www.youtube.com/watch?v=3NcN3ZcUp7o
 
 27. Giving it All Away https://www.youtube.com/watch?v=xGmFQ9icPzA
 
