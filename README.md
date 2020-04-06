@@ -9,7 +9,8 @@ https://www.gotquestions.org/miracle-money.html
 3. Money Changers
 4. Usury: https://www.gotquestions.org/Bible-lending-money.html
 5. https://www.gotquestions.org/ungodly-money.html
-6. https://www.gotquestions.org/money-marriage.html
+7. https://www.gotquestions.org/money-marriage.html
+8 https://www.gotquestions.org/Christian-stock-market.html
 
 # Francis-Chan-Sermons-on-Money
 ## 1. Financial Decisions with Eternal Consequences https://www.youtube.com/watch?v=GEZvbGfYjyY 
@@ -67,9 +68,11 @@ https://www.gotquestions.org/miracle-money.html
 
 # 26. Shall Not Want ~ Lacking Nothing ~ https://www.youtube.com/watch?v=3NcN3ZcUp7o
 
-27. Giving it All Away https://www.youtube.com/watch?v=xGmFQ9icPzA
 
-28. Francis Chan Sermons - Don't Let Money Obsess You (P2) https://www.youtube.com/watch?v=Mz3B_vJvcqg
+
+# 28. Francis Chan Sermons - Don't Let Money Obsess You (P2) https://www.youtube.com/watch?v=Mz3B_vJvcqg
+
+27. Giving it All Away https://www.youtube.com/watch?v=xGmFQ9icPzA
 
 29. Silicon Valley is Evil: Money & Technology Idoloatry https://www.youtube.com/watch?v=Tg6Bm9WUvYM
 
