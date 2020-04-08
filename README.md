@@ -12,7 +12,7 @@ https://www.gotquestions.org/miracle-money.html
 7. https://www.gotquestions.org/money-marriage.html
 8 https://www.gotquestions.org/Christian-stock-market.html
 9 https://www.gotquestions.org/gambling-sin.html
-
+10. https://www.gotquestions.org/Bible-greed.html
 
 # Francis-Chan-Sermons-on-Money
 ## 1. Financial Decisions with Eternal Consequences https://www.youtube.com/watch?v=GEZvbGfYjyY 
@@ -74,9 +74,11 @@ https://www.gotquestions.org/miracle-money.html
 
 # 28. Francis Chan Sermons - Don't Let Money Obsess You (P2) https://www.youtube.com/watch?v=Mz3B_vJvcqg
 
-27. Giving it All Away https://www.youtube.com/watch?v=xGmFQ9icPzA
+# 27. Giving it All Away https://www.youtube.com/watch?v=xGmFQ9icPzA
 
-29. Silicon Valley is Evil: Money & Technology Idoloatry https://www.youtube.com/watch?v=Tg6Bm9WUvYM
+# 29. Evil Silicon Valley: Money, Technology, Idolatry https://www.youtube.com/watch?v=Tg6Bm9WUvYM
+
+29.5 https://www.youtube.com/watch?v=Im5i3adK01M
 
 30. Francis Chan: "How to Get to Heaven from Silicon Valley" | Talks at Google https://www.youtube.com/watch?v=Tg6Bm9WUvYM
 
