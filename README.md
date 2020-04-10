@@ -13,6 +13,7 @@ https://www.gotquestions.org/miracle-money.html
 8 https://www.gotquestions.org/Christian-stock-market.html
 9 https://www.gotquestions.org/gambling-sin.html
 10. https://www.gotquestions.org/Bible-greed.html
+11. https://www.gotquestions.org/content_life_money.html
 
 # Francis-Chan-Sermons-on-Money
 ## 1. Financial Decisions with Eternal Consequences https://www.youtube.com/watch?v=GEZvbGfYjyY 
