@@ -79,9 +79,9 @@ https://www.gotquestions.org/miracle-money.html
 
 # 29. Evil Silicon Valley: Money, Technology, Idolatry https://www.youtube.com/watch?v=Tg6Bm9WUvYM
 
-29.5 https://www.youtube.com/watch?v=Im5i3adK01M
+# 29.5 https://www.youtube.com/watch?v=Im5i3adK01M
 
-30. Francis Chan: "How to Get to Heaven from Silicon Valley" | Talks at Google https://www.youtube.com/watch?v=Tg6Bm9WUvYM
+# 30. Francis Chan: "How to Get to Heaven from Silicon Valley" | Talks at Google https://www.youtube.com/watch?v=Tg6Bm9WUvYM
 
 31. God will provide for us https://www.youtube.com/watch?v=18_cSoDgnwM
 
