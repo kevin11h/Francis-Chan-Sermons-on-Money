@@ -84,10 +84,9 @@ https://www.gotquestions.org/miracle-money.html
 
 # 30. Francis Chan: "How to Get to Heaven from Silicon Valley" | Talks at Google https://www.youtube.com/watch?v=Tg6Bm9WUvYM
 
-31. God will provide for us https://www.youtube.com/watch?v=18_cSoDgnwM
+# 31. God will provide for us https://www.youtube.com/watch?v=18_cSoDgnwM
 
-32. Francis Chan: Being A Giver In A World Of Takers (Part 4)
- https://www.youtube.com/watch?v=fhdRaPGjtGw
+# 32. Francis Chan: Being A Giver In A World Of Takers (Part 4) https://www.youtube.com/watch?v=fhdRaPGjtGw
 
 33.Downsize Your Life Francis Chan https://www.youtube.com/watch?v=vX1eIH0Hghk
 
