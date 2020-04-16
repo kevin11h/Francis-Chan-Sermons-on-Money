@@ -124,6 +124,8 @@ https://www.youtube.com/watch?v=9jH65OCIwQU
 45.$1 - $2 Bill Lukewarm Loving it SErmon Video
 https://www.youtube.com/watch?v=uOImdkpuecA
 
+# 46. Count the Cost of Discipleship Luke 14 https://www.youtube.com/watch?v=IDU3KGG3rUY
+
 100 Names of Our One and Only God https://www.youtube.com/watch?v=fEwDx8YJndU
 
 OnnuriEM
