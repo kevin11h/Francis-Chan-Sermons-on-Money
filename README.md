@@ -16,6 +16,8 @@ https://www.gotquestions.org/miracle-money.html
 11. https://www.gotquestions.org/content_life_money.html
 12. https://www.gotquestions.org/raffles-in-church.html
 
+13. https://www.gotquestions.org/Christian-credit-card.html
+
 # Francis-Chan-Sermons-on-Money
 ## 1. Financial Decisions with Eternal Consequences https://www.youtube.com/watch?v=GEZvbGfYjyY 
 
