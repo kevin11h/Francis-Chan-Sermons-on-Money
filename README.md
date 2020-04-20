@@ -128,6 +128,8 @@ https://www.youtube.com/watch?v=uOImdkpuecA
 
 # 46. Count the Cost of Discipleship Luke 14 https://www.youtube.com/watch?v=IDU3KGG3rUY
 
+47. https://www.youtube.com/watch?v=uQ8Us38GBX0
+
 100 Names of Our One and Only God https://www.youtube.com/watch?v=fEwDx8YJndU
 
 OnnuriEM
