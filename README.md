@@ -137,7 +137,7 @@ https://www.youtube.com/watch?v=uOImdkpuecA
 
 # "Shrewd Work"
 
-# Nehemiah 2:1-10
+# Nehemiah 2:1-10 https://www.youtube.com/watch?v=x7e119VY0cs
 
 48. Sermon: Romans 15:26  Money, Money,https://www.youtube.com/watch?v=uQ8Us38GBX0
  
