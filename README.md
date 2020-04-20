@@ -94,8 +94,7 @@ https://www.gotquestions.org/miracle-money.html
 
 34. Francis Chan on What's Wrong with the Prosperity Gospel https://www.youtube.com/watch?v=_sLFgC4cRuI
 
-35.Sermon: Romans 15:26  Money, Money, Money and the Kingdom of God
- https://www.youtube.com/watch?v=e-VpRGQ2BVw
+35. Money and the Kingdom of God  https://www.youtube.com/watch?v=e-VpRGQ2BVw
  
  36. Treasure vs. Money – Timothy Keller [Sermon]
  https://www.youtube.com/watch?v=YEvuXAucbd8
@@ -126,21 +125,23 @@ https://www.youtube.com/watch?v=9jH65OCIwQU
 45.$1 - $2 Bill Lukewarm Loving it SErmon Video
 https://www.youtube.com/watch?v=uOImdkpuecA
 
-# 46. Count the Cost of Discipleship Luke 14 https://www.youtube.com/watch?v=IDU3KGG3rUY
+ 46. Count the Cost of Discipleship Luke 14 https://www.youtube.com/watch?v=IDU3KGG3rUY
 
 47. https://www.youtube.com/watch?v=uQ8Us38GBX0
 
 100 Names of Our One and Only God https://www.youtube.com/watch?v=fEwDx8YJndU
 
-OnnuriEM
+# OnnuriEM
 2.64K subscribers
-Message by Pastor Stephen Cha
+# Message by Pastor Stephen Cha
 
-"Shrewd Work"
+# "Shrewd Work"
 
-Nehemiah 2:1-10
+# Nehemiah 2:1-10
 
-
+48. Sermon: Romans 15:26  Money, Money,https://www.youtube.com/watch?v=uQ8Us38GBX0
+ 
+ 49. Pursue Meaning Not Money https://www.youtube.com/watch?v=_bdSWLdX4ew
 
 Francis-Chan-Luke-12-22-34-Stop-money-anxiety
 https://github.com/kevin11h/Francis-Chan-Luke-12-22-34-Stop-money-anxiety
