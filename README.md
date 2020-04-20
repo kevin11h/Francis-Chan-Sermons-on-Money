@@ -94,7 +94,7 @@ https://www.gotquestions.org/miracle-money.html
 
 34. Francis Chan on What's Wrong with the Prosperity Gospel https://www.youtube.com/watch?v=_sLFgC4cRuI
 
-35.Sermon: Money and the Kingdom of God
+35.Sermon: Romans 15:26  Money, Money, Money and the Kingdom of God
  https://www.youtube.com/watch?v=e-VpRGQ2BVw
  
  36. Treasure vs. Money – Timothy Keller [Sermon]
