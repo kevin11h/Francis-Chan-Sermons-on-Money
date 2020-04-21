@@ -99,6 +99,10 @@ https://www.gotquestions.org/miracle-money.html
  36. Treasure vs. Money – Timothy Keller [Sermon]
  https://www.youtube.com/watch?v=YEvuXAucbd8
  
+ 36.5 Tim Keller Greed https://www.youtube.com/watch?v=W4m8cv-_VKw
+ 
+ 36.7 Tim Keller Blessed are the Poor https://www.youtube.com/watch?v=GRmMccP1A9M
+ 
  37. Ecclesiastes 5:8-20 The Love Of Money
  https://www.youtube.com/watch?v=U1dMRHWce0Y
  
