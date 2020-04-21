@@ -90,14 +90,13 @@ https://www.gotquestions.org/miracle-money.html
 
 # 32. Francis Chan: Being A Giver In A World Of Takers (Part 4) https://www.youtube.com/watch?v=fhdRaPGjtGw
 
-33.Downsize Your Life Francis Chan https://www.youtube.com/watch?v=vX1eIH0Hghk
+# 33.Downsize Your Life Francis Chan https://www.youtube.com/watch?v=vX1eIH0Hghk
 
-34. Francis Chan on What's Wrong with the Prosperity Gospel https://www.youtube.com/watch?v=_sLFgC4cRuI
+# 34. Francis Chan on What's Wrong with the Prosperity Gospel https://www.youtube.com/watch?v=_sLFgC4cRuI
 
-35. Money and the Kingdom of God  https://www.youtube.com/watch?v=e-VpRGQ2BVw
+# 35. Money and the Kingdom of God  https://www.youtube.com/watch?v=e-VpRGQ2BVw
  
- 36. Treasure vs. Money – Timothy Keller [Sermon]
- https://www.youtube.com/watch?v=YEvuXAucbd8
+ # 36. Treasure vs. Money – Timothy Keller [Sermon] https://www.youtube.com/watch?v=YEvuXAucbd8
  
  36.5 Tim Keller Greed https://www.youtube.com/watch?v=W4m8cv-_VKw
  
