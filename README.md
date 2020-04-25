@@ -110,7 +110,7 @@ https://www.gotquestions.org/miracle-money.html
  39. Francis Chan - Come To Him Not Only Expecting To Receive, But To Give
 https://www.youtube.com/watch?v=9jH65OCIwQU
 
-40. How does God feels about the poor (amazing poverty Bible verses) - Francis Chan
+# 40. How does God feels about the poor (amazing poverty Bible verses) - Francis Chan
  https://www.youtube.com/watch?v=sT3ncgi0dJE
  
  41. https://www.youtube.com/watch?v=RI4zpsSRnkY Hardest Subject to Talk About In Church Today - Francis Chan
