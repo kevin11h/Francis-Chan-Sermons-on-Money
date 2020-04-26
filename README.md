@@ -154,6 +154,14 @@ https://github.com/kevin11h/Francis-Chan-Luke-12-22-34-Stop-money-anxiety
 # 50. Why God forbids to compare talents and gifts - Francis Chan  https://www.youtube.com/watch?v=jp8CLEFGvMk
 51. How to Receive a Gift https://www.youtube.com/watch?v=tD_meQT7138
 
+52. # https://www.youtube.com/watch?v=zYoZurpt3Lw&list=PLfWD4jzkXPJ-NKmj-LuVJoXrqxqYpuoNW&index=2&t=0s
+
+53. Will Chang
+
+54. Lloyd Kim
+
+# + 42 Poverty Proverbs Prosperity Verses
+
 # Isaiah-55-1-2-No-Money-Free-Honey-
 Isaiah 55:1-2 Invitation to the Needy 1“Come, all you who are thirsty, come to the waters; and you without money, come, buy, and eat! Come, buy wine and milk, without money and without cost! 2Why s…
 
