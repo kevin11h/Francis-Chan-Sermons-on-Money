@@ -19,7 +19,8 @@ https://www.gotquestions.org/miracle-money.html
 
 13. https://www.gotquestions.org/Christian-credit-card.html
 
-# Francis-Chan-Sermons-on-Money Crazy Love + NewLifePress NLP + JP Joseph Prince + Onnuri ~100
+# Proverbs Prosperity Poverty ~50
+# Francis-Chan-Sermons-on-Money Crazy Love + NewLifePress NLP + JP Joseph Prince + Onnuri ~40
 ## 1. Financial Decisions with Eternal Consequences https://www.youtube.com/watch?v=GEZvbGfYjyY 
 
 # 2.  Francis Chan: Stop Stressing About Money (Part 1) https://www.youtube.com/watch?v=cVdsGCL964w 
