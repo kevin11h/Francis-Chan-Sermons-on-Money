@@ -1,7 +1,8 @@
-# Francis Chan Filet of Fish Sermon https://www.youtube.com/watch?v=Q4YMLVn85y0&t=17m42s
+# 500 Five Hundred Episodes = 52 weeks x 10 years Investment Invest (Atonement Judgment Day) in God's Jesus Christ Wisdom for Eternity
+## Francis Chan Filet of Fish Sermon https://www.youtube.com/watch?v=Q4YMLVn85y0&t=17m42s
 
 
-# Questions on money in the Bible
+## Questions on money in the Bible ~400
 https://www.gotquestions.org/search.php?zoom_sort=0&amp;zoom_query=money
 1. Why is the love of money the root of all kinds of evil?
 https://www.gotquestions.org/miracle-money.html
@@ -18,7 +19,7 @@ https://www.gotquestions.org/miracle-money.html
 
 13. https://www.gotquestions.org/Christian-credit-card.html
 
-# Francis-Chan-Sermons-on-Money
+# Francis-Chan-Sermons-on-Money Crazy Love + NewLifePress NLP + JP Joseph Prince + Onnuri ~100
 ## 1. Financial Decisions with Eternal Consequences https://www.youtube.com/watch?v=GEZvbGfYjyY 
 
 # 2.  Francis Chan: Stop Stressing About Money (Part 1) https://www.youtube.com/watch?v=cVdsGCL964w 
