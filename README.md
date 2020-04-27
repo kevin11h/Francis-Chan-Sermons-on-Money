@@ -158,6 +158,8 @@ https://github.com/kevin11h/Francis-Chan-Luke-12-22-34-Stop-money-anxiety
 
 52. # https://www.youtube.com/watch?v=zYoZurpt3Lw&list=PLfWD4jzkXPJ-NKmj-LuVJoXrqxqYpuoNW&index=2&t=0s
 
+52.5 https://www.youtube.com/watch?v=dnFt_Fz1GL8
+
 53. Will Chang
 
 54. Lloyd Kim
