@@ -166,6 +166,7 @@ https://github.com/kevin11h/Francis-Chan-Luke-12-22-34-Stop-money-anxiety
 
 55. Gospel Light Prosperity Gospel https://www.youtube.com/watch?v=irTMfRJlbPE
 
+# 56. https://hockeystickprinciples.com/king-solomons-wise-advice-startup-founders/
 # + 42 Poverty Proverbs Prosperity Verses
 
 # Isaiah-55-1-2-No-Money-Free-Honey-
